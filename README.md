@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @lntegers-on-tt
+- 👀 I’m interested in playing video games, and playing basketball.
+- 🌱 I’m currently learning JavaScript and Python.
+- 💞️ I’m looking to collaborate on websites and mincecraft mdos.
+- 📫 How to reach me, you can message me on discord at "lntegers on tt#0001"
